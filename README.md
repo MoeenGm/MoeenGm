@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MoeenGm
-- 👀 I’m interested in ... Coding, Electric Engineering,Computer Science
+- 👀 I’m interested in ... Coding, Computer Science
 - 🌱 I’m currently learning ... German Language, C , Python , C+
 - 📫 How to reach me ... Instagram: moeen_gm  Email: moenfath@gmail.com
 
